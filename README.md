@@ -1,1 +1,2 @@
-# liveanddeadcat.github.io
+### liveanddeadcat.github.io
+I'm a PhD student with some art idea fluxes...
